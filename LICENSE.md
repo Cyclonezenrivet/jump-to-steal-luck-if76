@@ -1,4 +1,4 @@
-
+hidden Scripts for jump to steal lucky blocks is the best jump to steal lucky blocks Script, featuring auto-farm and speed. Safe and powerful for all
 
 
 
